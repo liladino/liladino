@@ -1,4 +1,4 @@
 👋 Hi, I’m @liladino
 
-I like to play chess and to make music
+I like playing chess and making music
 
